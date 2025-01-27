@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @dyktaa
+- 👋 Hi, I’m Dykta
 
